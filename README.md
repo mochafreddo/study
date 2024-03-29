@@ -1,1 +1,1 @@
-Study resources
+Study
